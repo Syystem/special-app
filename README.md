@@ -1,1 +1,1 @@
-ne redme menya
+ne redme menya esli hochesh
